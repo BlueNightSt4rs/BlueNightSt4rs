@@ -1,4 +1,5 @@
-![connie wallpaper](https://github.com/user-attachments/assets/2865928a-cc12-4c45-88b4-f7a374f680e8)
+![я знаю меня давно не было и я так сказать давно не в фд шк но вот так вот да](https://github.com/user-attachments/assets/35fdf602-7ab6-4070-a124-cc775526dee4)
+
 ★ the art isnt mine!! ★
 
 hi i am tiaa, (rain/tiaa) !!
@@ -47,4 +48,10 @@ Ivy.
 also!! my other dearest fictkin/kin is sugarfly. shes so me guys!!
 ^_____^
 ![Sugarfly Cookie](https://github.com/user-attachments/assets/1372f236-e36e-4fa8-989b-28f13ee147cc)
- 
+
+ ![Ultimate silly](https://github.com/user-attachments/assets/a5df2f03-b210-4b3f-a769-d123ceea97d9)
+
+![Y DESERVE T HAVE THE PRETTIEST WINGS EVER SUGARFLY 🙁 _ Crk ; SugarFly Cookie Whisper !](https://github.com/user-attachments/assets/41d6cd93-4666-421c-9139-dca10ed20c18)
+
+![Sugarfly ml](https://github.com/user-attachments/assets/4f87fc72-68be-4ddb-aaa0-81c7de2b66da)
+
