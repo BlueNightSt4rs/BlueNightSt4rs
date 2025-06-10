@@ -1,8 +1,15 @@
+
+
+
 ![я знаю меня давно не было и я так сказать давно не в фд шк но вот так вот да](https://github.com/user-attachments/assets/35fdf602-7ab6-4070-a124-cc775526dee4)
 
 ★ the art isnt mine!! ★
 
 hi i am tiaa, (rain/tiaa) !!
+
+
+( < Aurora 3 ) <-- ily wife!!
+
 
 pronouns: she/her
 
