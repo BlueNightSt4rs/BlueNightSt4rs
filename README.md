@@ -5,8 +5,6 @@
           
 
 ![Welcome (☍)](https://github.com/user-attachments/assets/88603c2f-4f35-4eb2-8d25-861d48c8aeb1)
-![d52ce489-a64b-4143-9e99-
-21f59329c99e]
                              
 
 
@@ -45,7 +43,6 @@ Search](https://github.com/user-attachments/assets/cef56519-43a3-45c7-9213-e0709
 
 ![2a001abc-46bd-408d-b44d-05285d61bb73](https://github.com/user-attachments/assets/5917717d-ec39-4b0c-b29c-a3964aa85350)
 
-![I loved this episode](https://github.com/user-attachments/assets/520ef249-1b81-4600-a78b-2ee5ebd526eb)
 
 
 
