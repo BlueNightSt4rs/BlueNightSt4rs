@@ -26,13 +26,10 @@
 ✦ im lesbian, a bit bisexual, and abrosexual. star, ghost + self.
 
 
-＊ * •̩̩͙ ✩ •̩̩͙ * ˚˚ * •̩̩͙ ✩ •̩̩͙ *  ˚     ＊
-
 
 ![puella magi madoka magica](https://github.com/user-attachments/assets/a2754ca7-a4d0-4b69-9e8b-652818b875df)
 
-https://guns.lol/tiaaconniee
-Social medias,, 
+
 [ gonna make strawpage, rentry etc. soon ]
 
 
