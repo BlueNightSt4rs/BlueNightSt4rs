@@ -10,8 +10,6 @@
   
 **✦ hello, i am a CEO of gambleGhost, I usually dont talk about it everytime, but its my favorite ever, I liked the ship from the START and have so many arts of it, (or doodles) And i kin connie (and sayaka mizi),,**
 
-(https://github.com/user-attachments/assets/c8292f51-e616-4754-9e83-b87c0b72c848)
-![4410dfc3-22dd-4e0e-be69-f72a83bb0819]
 
 # NickNames
 ✦ I go by tia/a, rain. my other nicks are egostaria, skii. I prefer tiaa and rain, if your a close friend call me egostaria or skii, İ dont really mind if we are close. 
@@ -20,6 +18,7 @@
 
 
 ![Sayaka miki - Madoka magica](https://github.com/user-attachments/assets/f0868ef0-b307-4320-a8ee-af0788870991)
+
 
 # Pronouns, sexuality
 ✦ Pronouns are **she/her/they** pretty please just use these, any prns for strangers. 
