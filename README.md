@@ -1,8 +1,10 @@
 ( @ShellyFosilliannTiaa is past username)
+
 ![4af5291b-7e5f-464e-a77f-6c03240f0a48](https://github.com/user-attachments/assets/51e0cbf2-23cf-4ddc-83ad-2f20e285c48c)
  
 
-# „ I've Decided that from now on, Im NEVER gonna regret anything. Ever again! ” 
+# „I've Decided that from now on, Im NEVER gonna regret anything. Ever again!”
+
 
         I slur 24/7
 
@@ -16,28 +18,54 @@
 
 ✦ somebody said 'you copy the nick riaa from someone' actually no, I have the tiaa nick for like 2 years? please dont talk about this omg nicks are not irl names though
 
+# Fav characters
+✦ Connie
+✦ Vee
+✦ P-chan
+✦ Sayaka mizi
+✦ Sakuya izayoi
+✦ Reimu hakurei
+✦ Euonia
+✦ Cream soda cookie
+✦ Sea fairy cookie
+✦ Shadow milk cookie
+✦ Snapdragon cookie
+✦ Sugarfly cookie
+✦ Mozzarella cookie
+✦ Xingchen stardust
+✦ Namgyu
+✦ Bluudud
+✦ Basil
+✦ Cinnamoroll
+✦ My melody
+✦ Kirby
+✦ Furina
+✦ Ragatha
+✦ Alice
 
-![Sayaka miki - Madoka magica](https://github.com/user-attachments/assets/f0868ef0-b307-4320-a8ee-af0788870991)
+![262f1499c8db08566323022cd1038be7](https://github.com/user-attachments/assets/7a6bcc9b-fd10-4957-94e6-e3f22715a740)
+
 
 
 # Pronouns, sexuality
 ✦ Pronouns are **she/her/they** pretty please just use these, any prns for strangers. 
 
-✦ im lesbian, a bit bisexual, and abrosexual. star, ghost + self.
+✦ im lesbian, a bit bisexual, and abrosexual, pansexual. star, ghost + self.
 
-# Birthday is 23 may! 🎂 
+# Birthday is 23 May
 
-![puella magi madoka magica](https://github.com/user-attachments/assets/a2754ca7-a4d0-4b69-9e8b-652818b875df)
-
-
-[ gonna make strawpage, rentry etc. soon ]
+ill make strawpage maybeee
 
 
+![Sayaka tumblr](https://github.com/user-attachments/assets/abc1243c-2a7c-4c09-a23d-48b1364cc94b)
 
-![420670980-15d95537-3ace-4745-a419-ed5f3e664340](https://github.com/user-attachments/assets/0cb85fba-f697-45d8-829f-96c51283f9d1)
 
 
-     🌷 Taken by < Aurora 3 . 
+    🌷 Taken by < Aurora 3 . 
+    ily wife ♡ ꈍ◡ꈍ
+    ໒꒰⁄ ⁄>⁄ ⁄ <⁄ ⁄꒱১
+      
+      
      
       
   
