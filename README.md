@@ -54,8 +54,6 @@
 
 # Birthday is 23 May
 
-ill make strawpage maybeee
-
 
 ![Sayaka tumblr](https://github.com/user-attachments/assets/abc1243c-2a7c-4c09-a23d-48b1364cc94b)
 
