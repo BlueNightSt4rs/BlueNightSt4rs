@@ -18,4 +18,5 @@
           Gemini    (  Horoscope )
 
                   
-i Will make rentry and strawpage (soon) (*ˊᗜˋ*)
+i Will make rentry and strawpage (soon) (*^ᗜ^*) 
+
