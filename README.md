@@ -4,19 +4,5 @@
 
  👻🎼,, 𝐁𝐘𝐈: im a big fan of GambleGhost!! i am a CEO of GambleGhost. 
 
-✦ if youll say im not CEO of GambleGhost/ youre one, you have a problem with me actually, hide me or i will. 
-
-
-
-        
-                    ✦
-
-                23      May
-
-            Ghost self  +  Gender
-
-          Gemini    (  Horoscope )
-
-                  
-i Will make rentry and strawpage (soon) (*^ᗜ^*) 
+✦ if youll say im not CEO of GambleGhost/ youre one, hide me or shut up
 
