@@ -1,3 +1,3 @@
-![MIZUKI - RENTRY WIDGET CARRD PNG PFP PINK](https://github.com/user-attachments/assets/dfb6e0e7-989b-436d-8b6c-6c731063912b)
+![mizuki hd](https://github.com/user-attachments/assets/79694964-037b-4c7a-9faf-c5e8b5865222)
 
 
