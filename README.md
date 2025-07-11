@@ -22,7 +22,7 @@
 
 
 
-@BlueGliterss is spam following acc,, I don't use it often.
+@BlueGlitterss is spam following acc,, I don't use it often.
 
 
 
