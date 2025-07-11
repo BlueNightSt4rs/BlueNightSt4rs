@@ -1,12 +1,12 @@
-no![79f62925-0f6a-43c2-9171-3490e0fb7040](https://github.com/user-attachments/assets/04c7e5f3-59a0-43e5-87ed-9784a11dba20)
+![79f62925-0f6a-43c2-9171-3490e0fb7040](https://github.com/user-attachments/assets/04c7e5f3-59a0-43e5-87ed-9784a11dba20)
 
 
 
 
-      
-╰  𝖳𝗂𝖺𝖺  , 𝖲𝗄𝗂𝗂  , 𝖱𝖺𝗂𝗇  ,  𝖲𝖾𝖺 ╮
+       
+╰   𝖳𝗂𝖺𝖺  , 𝖲𝗄𝗂𝗂  , 𝖱𝖺𝗂𝗇  ,  𝖲𝖾𝖺  ╮
 
-╭ 𝖲𝗁𝖾  /  𝖧𝖾𝗋  /  𝖳𝗁𝖾𝗒 , 𝖦𝗁𝗈𝗌𝗍 𝗌𝖾𝗅𝖿 ╯
+╭  𝖲𝗁𝖾  /  𝖧𝖾𝗋  /  𝖳𝗁𝖾𝗒 , 𝖦𝗁𝗈𝗌𝗍 𝗌𝖾𝗅𝖿  ╯
 
 ★ 𝗂𝗆 𝗇𝗈𝗍 𝖽𝗈𝗂𝗇𝗀 𝖿𝖺𝖼𝖾 / 𝗏𝗈𝗂𝖼𝖾 / 𝖺𝗀𝖾 𝖱𝖾𝗏. 
 
@@ -21,9 +21,8 @@ no![79f62925-0f6a-43c2-9171-3490e0fb7040](https://github.com/user-attachments/as
 
 
 
-@BlueGliterss is spam following acc.
 
-     ( I don't use it often )
+@BlueGliterss is spam following acc,, I don't use it often.
 
 
 
