@@ -4,9 +4,9 @@
 
 • I go by many Nicks, sea, skii, rain, tiaa and more. 
 
-• I go by.. she/her/they. i am genderfluid and nonbinary (i cant choose one) 
+• I go by.. she/her/they. i am genderfluid and nonbinary (I cant choose one) 
 
-☼My fict/kins are,, Vee and Connie 
+☼ My fict/kins are,, Vee and Connie 
 
 ☀︎ I am the CEO of gambleghost, dont piss me by saying youre one or i am not. 
 
