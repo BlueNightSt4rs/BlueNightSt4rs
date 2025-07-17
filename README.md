@@ -10,7 +10,7 @@
 
 ☀︎ I am the CEO of gambleghost, dont piss me by saying youre one or i am not. 
 
-• I like every adult x adult ships unless.. 
+• I like every adult x adult (Im not a dark/pro shipper!!) ships unless.. 
 
  - Angryhugs
  - Teacase
