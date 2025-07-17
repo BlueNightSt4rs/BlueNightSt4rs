@@ -24,9 +24,9 @@
  - HauntedTelevision (connie x vee)
  - UnvisibleBalloons (connie x looey) 
  - Teaflower (teagan x dandy)
- - shellvision (shelly x vee) 
-
-
+ - Shellvision (shelly x vee) 
+ - Dinasourstars (shelly x astro)
+ - Fossilberry (shelly x sprout)
 
 
  
